@@ -1,1 +1,1 @@
-# dekopinda-kota-bukittinggi
+# dekopinda-karanganyar
